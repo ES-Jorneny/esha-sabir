@@ -14,6 +14,7 @@ University of Gujrat, Pakistan (2021 – 2025) | **CGPA: 3.58 / 4.00**
 📧 **e.s.journey456@gmail.com**  
 📞 **+92 304 6240995**  
 🔗[LinkedIn](https://linkedin.com/in/esha-sabir-19b537369)
+🌍 [Developer Portfolio](https://es-jorneny.github.io/esha-portfolio/)
 
 ---
 
